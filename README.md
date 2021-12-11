@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cassiclean
+- 👋 Hi, I’m @cassiclean, you can call me Cass
 - 👀 I’m interested in all aspects of cleaning and sharing my decade worth of experience
 - 🌱 I’m currently learning how to create digital content of my cleaning knowlege
 - 💞️ I’m open to learning how to perfect the art of content creation
